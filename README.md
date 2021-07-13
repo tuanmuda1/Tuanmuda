@@ -1,0 +1,1 @@
+Jangan sok keras Bos
